@@ -30,7 +30,8 @@
 Vous pouvez me contacter sur : 
 
 * brunic.feyou@edu.devinci.fr
-* [![lien linkdln](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.facebook.com%2FLinkedInFR%2F&psig=AOvVaw1Taw-gLncVRVuc8YVQkbKw&ust=1694699819626000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCJjOxfjep4EDFQAAAAAdAAAAABAE)](https://www.linkedin.com/in/brunic-feyou-7b358624b/)
+
+*  [Linkedln]([./installation](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.facebook.com%2FLinkedInFR%2F&psig=AOvVaw1Taw-gLncVRVuc8YVQkbKw&ust=1694699819626000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCJjOxfjep4EDFQAAAAAdAAAAABAE)](https://www.linkedin.com/in/brunic-feyou-7b358624b/)https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.facebook.com%2FLinkedInFR%2F&psig=AOvVaw1Taw-gLncVRVuc8YVQkbKw&ust=1694699819626000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCJjOxfjep4EDFQAAAAAdAAAAABAE)](https://www.linkedin.com/in/brunic-feyou-7b358624b/)
 
  
 
